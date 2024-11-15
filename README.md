@@ -3,7 +3,7 @@
 **Series Name**: *Vikings*
 
 ## Plot Summary:
-Vikimngs is an epic historical drama that follows the life of Ragnar Lothbrok, a legendary norse hero. The series captures the spirit of the Viking Age and brings the history of Norse mythology, battles, and family drama to life.
+Vikings is an epic historical drama that follows the life of Ragnar Lothbrok, a legendary norse hero. The series captures the spirit of the Viking Age and brings the history of Norse mythology, battles, and family drama to life.
 
 ## Why I Love Vikings
 
